@@ -13,5 +13,5 @@
 - 
 - 📫 How to reach me: 
 w.linkedin.com/in/mariana-rodriguez-meza-qajuniortester
-📧 mrodrigruzmeza@gmail.com
+📧 mrodriguezmeza89@gmail.com
   
